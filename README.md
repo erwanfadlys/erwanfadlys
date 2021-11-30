@@ -1,5 +1,5 @@
 # 👋 Hi, I’m @erwanfadlys 
-Half of my life i dedicate to oil and gas. Covid slap me 😵‍💫 with reality and I think its time for me to take a break and learn something new. 
+Half of my life i dedicate to oil and gas. Covid slap me 😵‍💫 with reality and I think its time for me to take a break and slow down while equipped myself in learning something new. 
 
 Wish me luck on my journey ✌️
 
