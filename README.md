@@ -3,7 +3,7 @@ Half of my life i dedicate to oil and gas. Covid slap me 😵‍💫 with realit
 
 Wish me luck on my journey ✌️
 
-![hippo](https://i.gifer.com/o6m.mp4)
+![hippo]!(https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
 
 <!---
 erwanfadlys/erwanfadlys is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
